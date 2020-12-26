@@ -1,0 +1,10 @@
+# Krispy Kreme Challenge
+5
+2018-02-18
+Raleigh, NC
+
+* NICK OLTMAN (# 853),30,00:30:21
+* CARSON TRUESDELL (# 1199),22,00:30:27
+* JACOB WORMALD (# 1292),22,00:31:26
+* TIMOTHY RYAN (# 1010),28,00:31:49
+# Krispy Kreme Challenge!
